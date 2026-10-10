@@ -1,5 +1,4 @@
-<img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/Maki_Harukawa_Bonus_Mode_Pixel_Icon_29.webp">
-<img align="right" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/Maki_Harukawa_Bonus_Mode_Pixel_Icon_30.webp">
+<img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/pepe-arknights.gif">
 <h1 align="center">𝟙𝟜𝟘+ 𝕙𝕠𝕦𝕣𝕤 𝕠𝕗 𝕥𝕙𝕖 𝕓𝕦𝕘 𝕔𝕣𝕖𝕨</a>
 
 [![Readme Quotes](https://quotes-github-readme.vercel.app/api?type=horizontal&theme=dark)](https://github.com/piyushsuthar/github-readme-quotes)
@@ -18,3 +17,6 @@
 ___________________________________________________________________________________________________________________________________________
 <img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/nxt.gif">
 <img align="right" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/kaveh-pixel.gif">
+<h1 align="center">𝕗𝕒𝕟𝕕𝕠𝕞𝕤:</a>
+<img align="center" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/Без%20названия4.png">
+_____________________________________________________________________________________________________________________________________________
