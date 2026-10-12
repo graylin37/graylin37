@@ -18,5 +18,4 @@ ________________________________________________________________________________
 <img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/nxt.gif">
 <img align="right" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/kaveh-pixel.gif">
 <h1 align="center">𝕗𝕒𝕟𝕕𝕠𝕞𝕤:</a>
-<img align="center" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/Без%20названия4.png">
-_____________________________________________________________________________________________________________________________________________
+<img align="center" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/Без%20названия4.png" style="width: 80%; height: 80;">
