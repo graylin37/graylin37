@@ -66,9 +66,8 @@ ________________________________________________________________________________
 
 
 
-
-<img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/tenor-eben.gif" style="width: 30%; height: 30%;">
 <img align="right" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/arkkk.gif" style="width: 39%; height: 39%;">
+<img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/tenor-eben.gif" style="width: 30%; height: 30%;">
 
 𝕚 𝕠𝕗𝕥𝕖𝕟 𝕣𝕦𝕟 𝕒𝕣𝕠𝕦𝕟𝕕 𝕥𝕙𝕖 𝕞𝕒𝕡, 𝕤𝕠 𝕚 𝕕𝕠𝕟’𝕥 𝕙𝕒𝕧𝕖 𝕒 𝕤𝕡𝕖𝕔𝕚𝕗𝕚𝕔 𝕡𝕖𝕣𝕞𝕒𝕟𝕖𝕟𝕥 𝕝𝕠𝕔𝕒𝕥𝕚𝕠𝕟. 
 
