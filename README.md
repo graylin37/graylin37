@@ -10,13 +10,13 @@ ________________________________________________________________________________
 
 
 
-<h1 align="center" style="width: 50%; height: 50%;">𝟙𝟜𝟘+ 𝕙𝕠𝕦𝕣𝕤 𝕠𝕗 𝕥𝕙𝕖 𝕓𝕦𝕘 𝕔𝕣𝕖𝕨</a>
+<h1 align="center" style="width: 50%; height: 50%;">𝟙𝟜𝟘+ 𝕙𝕠𝕦𝕣𝕤 𝕠𝕗 𝕥𝕙𝕖 𝕓𝕦𝕘 𝕔𝕣𝕖𝕨</center></h1>
   
-  [![Readme Quotes](https://quotes-github-readme.vercel.app/api?type=horizontal&theme=dark)](https://github.com/piyushsuthar/github-readme-quotes)
+𝕤𝕠𝕞𝕖𝕥𝕚𝕞𝕖𝕤 𝕚𝕥 𝕤𝕖𝕖𝕞𝕤 𝕥𝕠 𝕞𝕖 𝕥𝕙𝕒𝕥 𝕀 𝕕𝕠𝕟'𝕥 𝕦𝕟𝕕𝕖𝕣𝕤𝕥𝕒𝕟𝕕 𝕞𝕪𝕤𝕖𝕝𝕗 𝕒𝕟𝕕 𝕠𝕥𝕙𝕖𝕣 𝕡𝕖𝕠𝕡𝕝𝕖. 𝕒𝕟𝕕 𝕥𝕠 𝕦𝕟𝕕𝕖𝕣𝕤𝕥𝕒𝕟𝕕 𝕤𝕠𝕞𝕖𝕠𝕟𝕖, 𝕪𝕠𝕦 𝕙𝕒𝕧𝕖 𝕥𝕠 𝕥𝕣𝕪 𝕒 𝕝𝕠𝕥. 𝕀 𝕥𝕙𝕚𝕟𝕜, 𝕓𝕦𝕥 𝕨𝕙𝕪 𝕥𝕣𝕪, 𝕚𝕗 𝕪𝕠𝕦 𝕟𝕖𝕖𝕕 𝕥𝕠 𝕥𝕒𝕜𝕖 𝕚𝕥 𝕒𝕟𝕕 𝕦𝕟𝕕𝕖𝕣𝕤𝕥𝕒𝕟𝕕. 𝕨𝕙𝕒𝕥'𝕤 𝕚𝕟 𝕪𝕠𝕦𝕣 𝕙𝕖𝕒𝕕, 𝕔𝕒𝕟 𝕚 𝕤𝕖𝕖?
 
   
 ### 
-<img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/walk.gif"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/angel.gif"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/blik.gif"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/blinkie-lesbian.gif"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/good.gif"><img align="0" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/blinkies%20(1)8.gif">
+<img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/walk.gif"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/angel.gif"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/blik.gif"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/blinkie-lesbian.gif"><img align="0" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/blinkies%20(1)8.gif">
 
  
 
