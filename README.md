@@ -54,26 +54,9 @@ ________________________________________________________________________________
 <img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/star.webp" style="width: 5%; height: 5%;"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/star.webp" style="width: 5%; height: 5%;"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/star.webp" style="width: 5%; height: 5%;"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/star.webp" style="width: 5%; height: 5%;"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/star.webp" style="width: 5%; height: 5%;"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/star.webp" style="width: 5%; height: 5%;"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/star.webp" style="width: 5%; height: 5%;"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/star.webp" style="width: 5%; height: 5%;"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/star.webp" style="width: 5%; height: 5%;"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/star.webp" style="width: 5%; height: 5%;"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/star.webp" style="width: 5%; height: 5%;"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/star.webp" style="width: 5%; height: 5%;">
 
 
+𝕀 𝕨𝕒𝕟𝕥 𝕤𝕠𝕞𝕖𝕠𝕟𝕖 𝕥𝕠 𝕗𝕠𝕣𝕘𝕚𝕧𝕖 𝕞𝕪 𝕤𝕚𝕟𝕗𝕦𝕝 𝕥𝕙𝕠𝕦𝕘𝕙𝕥𝕤 𝕒𝕟𝕕 𝕓𝕖𝕘𝕚𝕟𝕟𝕚𝕟𝕘𝕤 𝕚𝕟𝕤𝕚𝕕𝕖 𝕥𝕙𝕖 𝕔𝕠𝕓𝕨𝕖𝕓 𝕞𝕚𝕟𝕕. 𝕥𝕙𝕚𝕤 𝕔𝕠𝕔𝕠𝕠𝕟 𝕠𝕗 𝕔𝕠𝕟𝕥𝕣𝕒𝕕𝕚𝕔𝕥𝕚𝕠𝕟𝕤 𝕒𝕟𝕕 𝕔𝕠𝕟𝕗𝕝𝕚𝕔𝕥𝕤 𝕕𝕠𝕖𝕤 𝕟𝕠𝕥 𝕔𝕠𝕝𝕝𝕒𝕡𝕤𝕖.
 
-
-
-
-
-
-
-
-
-<img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/tenor-eben.gif" style="width: 30%; height: 30%;">
-<img align="right" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/arkkk.gif" style="width: 39%; height: 39%;">
-
-
-𝕚 𝕠𝕗𝕥𝕖𝕟 𝕣𝕦𝕟 𝕒𝕣𝕠𝕦𝕟𝕕 𝕥𝕙𝕖 𝕞𝕒𝕡, 𝕤𝕠 𝕚 𝕕𝕠𝕟’𝕥 𝕙𝕒𝕧𝕖 𝕒 𝕤𝕡𝕖𝕔𝕚𝕗𝕚𝕔 𝕡𝕖𝕣𝕞𝕒𝕟𝕖𝕟𝕥 𝕝𝕠𝕔𝕒𝕥𝕚𝕠𝕟. 
-
-𝕞𝕠𝕤𝕥 𝕠𝕗𝕥𝕖𝕟, 𝕚’𝕞 𝕒𝕥 𝕥𝕙𝕖 𝕤𝕡𝕒𝕨𝕟 𝕡𝕠𝕚𝕟𝕥, 𝕚𝕟 𝕥𝕙𝕖 𝕒𝕣𝕖𝕒 𝕠𝕗 𝕘𝕒𝕔𝕙𝕒 𝕘𝕒𝕞𝕖𝕤 𝕒𝕟𝕕 𝕞𝕝𝕡.
-
-𝕚’𝕞 𝕒𝕣𝕥𝕚𝕤𝕥; 𝕤𝕠𝕞𝕖𝕥𝕚𝕞𝕖𝕤 𝕔𝕒𝕟 𝕨𝕣𝕚𝕥𝕖 𝕤𝕙𝕠𝕣𝕥 𝕤𝕥𝕠𝕣𝕚𝕖𝕤, 𝕥𝕣𝕒𝕟𝕤𝕝𝕒𝕥𝕖 𝕡𝕠𝕖𝕞𝕤 𝕠𝕣 𝕤𝕠𝕟𝕘𝕤, 𝕒𝕟𝕕 𝕚’𝕞 𝕒𝕝𝕤𝕠 𝕡𝕒𝕣𝕥 𝕠𝕗 𝕞𝕒𝕟𝕪 𝕗𝕒𝕟𝕕𝕠𝕞𝕤 (𝕚𝕟𝕗𝕠 𝕒𝕓𝕠𝕧𝕖). 
-
-𝕚’𝕝𝕝 𝕤𝕦𝕡𝕡𝕠𝕣𝕥 𝕥𝕙𝕖 𝕔𝕠𝕟𝕧𝕖𝕣𝕤𝕒𝕥𝕚𝕠𝕟 𝕠𝕣 𝕗𝕦𝕣𝕥𝕙𝕖𝕣 𝕔𝕠𝕞𝕞𝕦𝕟𝕚𝕔𝕒𝕥𝕚𝕠𝕟 𝕚𝕗 𝕚 𝕤𝕙𝕠𝕨 𝕒 𝕕𝕖𝕤𝕚𝕣𝕖 — 𝕚𝕥 𝕨𝕠𝕟’𝕥 𝕛𝕦𝕤𝕥 𝕓𝕖 𝕞𝕖.
+𝕚 𝕠𝕗𝕥𝕖𝕟 𝕣𝕦𝕟 𝕒𝕣𝕠𝕦𝕟𝕕 𝕥𝕙𝕖 𝕞𝕒𝕡, 𝕤𝕠 𝕚 𝕕𝕠𝕟’𝕥 𝕙𝕒𝕧𝕖 𝕒 𝕤𝕡𝕖𝕔𝕚𝕗𝕚𝕔 𝕡𝕖𝕣𝕞𝕒𝕟𝕖𝕟𝕥 𝕝𝕠𝕔𝕒𝕥𝕚𝕠𝕟. 𝕞𝕠𝕤𝕥 𝕠𝕗𝕥𝕖𝕟, 𝕚’𝕞 𝕒𝕥 𝕥𝕙𝕖 𝕤𝕡𝕒𝕨𝕟 𝕡𝕠𝕚𝕟𝕥, 𝕚𝕟 𝕥𝕙𝕖 𝕒𝕣𝕖𝕒 𝕠𝕗 𝕘𝕒𝕔𝕙𝕒 𝕘𝕒𝕞𝕖𝕤 𝕒𝕟𝕕 𝕞𝕝𝕡. 𝕚’𝕞 𝕒𝕣𝕥𝕚𝕤𝕥; 𝕤𝕠𝕞𝕖𝕥𝕚𝕞𝕖𝕤 𝕔𝕒𝕟 𝕨𝕣𝕚𝕥𝕖 𝕤𝕙𝕠𝕣𝕥 𝕤𝕥𝕠𝕣𝕚𝕖𝕤, 𝕥𝕣𝕒𝕟𝕤𝕝𝕒𝕥𝕖 𝕡𝕠𝕖𝕞𝕤 𝕠𝕣 𝕤𝕠𝕟𝕘𝕤, 𝕒𝕟𝕕 𝕚’𝕞 𝕒𝕝𝕤𝕠 𝕡𝕒𝕣𝕥 𝕠𝕗 𝕞𝕒𝕟𝕪 𝕗𝕒𝕟𝕕𝕠𝕞𝕤 (𝕚𝕟𝕗𝕠 𝕒𝕓𝕠𝕧𝕖). 𝕚’𝕝𝕝 𝕤𝕦𝕡𝕡𝕠𝕣𝕥 𝕥𝕙𝕖 𝕔𝕠𝕟𝕧𝕖𝕣𝕤𝕒𝕥𝕚𝕠𝕟 𝕠𝕣 𝕗𝕦𝕣𝕥𝕙𝕖𝕣 𝕔𝕠𝕞𝕞𝕦𝕟𝕚𝕔𝕒𝕥𝕚𝕠𝕟 𝕚𝕗 𝕚 𝕤𝕙𝕠𝕨 𝕒 𝕕𝕖𝕤𝕚𝕣𝕖 — 𝕚𝕥 𝕨𝕠𝕟’𝕥 𝕛𝕦𝕤𝕥 𝕓𝕖 𝕞𝕖.
 
 
 
