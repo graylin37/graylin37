@@ -1,4 +1,4 @@
-<img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/blinkies.gif"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/love%20me.gif"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/rose.gif"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/sou.gif"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/yappee.gif"><img align="0" src="https://github.com/graylin37/gray37/blob/main/teto.gif">
+<img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/blinkies.gif"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/love%20me.gif"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/rose.gif"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/sou.gif"><img align="0" src="https://github.com/graylin37/gray37/blob/main/teto.gif">
 
  
 
