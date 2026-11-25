@@ -5,10 +5,6 @@
 
 
 ___________________________________________________________________________________________________________________________________________
-<img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/pepe-arknights.gif" style="width: 100%; height: 100;">
-
-
-
 
 <h1 align="center" style="width: 50%; height: 50%;">𝟙𝟜𝟘+ 𝕙𝕠𝕦𝕣𝕤 𝕠𝕗 𝕥𝕙𝕖 𝕓𝕦𝕘 𝕔𝕣𝕖𝕨</center></h1>
   
@@ -16,6 +12,7 @@ ________________________________________________________________________________
 
   
 ### 
+___________________________________________________________________________________________________________________________________________
 <img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/walk.gif"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/angel.gif"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/blik.gif"><img align="left" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/blinkie-lesbian.gif"><img align="0" src="https://raw.githubusercontent.com/graylin37/gray37/refs/heads/main/blinkies%20(1)8.gif">
 
  
